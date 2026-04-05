@@ -3,7 +3,8 @@
 ![download (33)](https://github.com/user-attachments/assets/20d4acfa-8ec3-4ece-9fa4-7953d476da4f)
 ***
 
-
+.˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
+　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　   　
 <details> <summary>Hi</summary>
-If I'm using this GH profile on Pony Town I likely don't wanna talk and I most definitely woke up from a long sleep or nap
+[ᶻ 𝗓 𐰁 .ᐟ] If I'm using this GH profile (On PT) I likely don't wanna talk and I most definitely woke up from a long sleep or nap.
 </details>
