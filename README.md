@@ -6,4 +6,4 @@
 
 </details> <summary>Hi</summary>
 If I'm using this GH profile on Pony Town I likely don't wanna talk and I most definitely woke up from a long sleep or nap
-<details>
+</details>details>
