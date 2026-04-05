@@ -8,3 +8,4 @@
 <details> <summary>Hi</summary>
 [ᶻ 𝗓 𐰁 .ᐟ] If I'm using this GH profile (On PT) I likely don't wanna talk and I most definitely woke up from a long sleep or nap.
 </details>
+⊹₊ ˚‧︵‿₊୨୧₊‿︵‧ ˚ ₊⊹
