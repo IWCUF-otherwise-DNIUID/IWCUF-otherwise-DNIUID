@@ -13,7 +13,8 @@
 - Green name ≠ close so dont expect me to engage in any conversation if you approach me just bcs I'm on your friend list
   > at most, I'll use the nod and shake head action as my response or if I feel like it, emojis
 - sorry, im probably in a mood if I use this acc and don't feel like talking (ᗒᗣᗕ)՞
-> I usually get over my mood pretty quick tho, so just be patient and interact w caution and care w me, thanks! ( ⸝⸝´꒳`⸝⸝)
+- ALWAYS whisper to interact!! I'm lakely afk or off tab and won't see your message right away!
+> I usually get over my bad mood pretty quick tho, so just be patient and interact w caution and care w me, thanks! ( ⸝⸝´꒳`⸝⸝)
 
 
 .˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
